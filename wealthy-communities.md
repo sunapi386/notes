@@ -69,6 +69,48 @@ Two of the richest communities in the US with very different characters.
 | Whistler | Canada's Aspen — ski wealth, vacation properties |
 | Mont-Tremblant, QC | Quebec's luxury ski/resort community |
 
+### Hamilton, Ontario Area
+
+Hamilton is historically a steel/industrial city ("Steeltown"), not wealthy — but gentrifying fast since Toronto prices exploded. The wealthy pockets nearby:
+
+| Location | Notes |
+|---|---|
+| Ancaster | The wealthy suburb of Hamilton. Old money, large lots, limestone homes. Doctors, lawyers, old Hamilton industrial families. |
+| Dundas | Charming small-town feel, increasingly expensive, artists + professionals |
+| Burlington (lakeshore) | Lakeshore Road area is very affluent. Waterfront properties. |
+| Oakville | East of Burlington — the real money. Bay Street (Toronto finance) commuters, old Ontario wealth, auto industry execs. One of the wealthiest towns in Canada. |
+| Grimsby / Beamsville | Niagara Escarpment wine country, hobby farms for wealthy Torontonians |
+
+Oakville is the standout — Hamilton-adjacent and genuinely in the same tier as Forest Hill or Rosedale in terms of wealth, just suburban rather than urban.
+
+## Montecito Spots — Where to See Rich People
+
+### Rosewood Miramar Beach
+
+One of the top luxury hotels on the West Coast. ~$1,900+/night. Built by Rick Caruso (LA billionaire developer who also built The Grove). Replaced the historic Miramar hotel (on that site since 1887). One of the few California luxury hotels where you walk directly onto sand. Regularly ranked among the best hotels in the world by Travel + Leisure / Conde Nast Traveler.
+
+Competitors in that tier on the West Coast:
+- Post Ranch Inn, Big Sur (~$2-3K/night) — more remote/romantic
+- San Ysidro Ranch, Montecito (~$1.5-3K) — where JFK and Jackie honeymooned, more intimate
+- Nobu Ryokan, Malibu (~$2-3K) — ultra-exclusive, only 16 rooms
+
+### Other Montecito Spots
+
+- **Lucky's Steakhouse** — the local power-dinner spot, Oprah is a regular
+- **Honor Bar** — casual lunch spot, frequent celebrity sightings
+- **Coast Village Road** — the little shopping strip where locals go, good people-watching at the cafes
+- **Coral Casino Beach & Cabana Club** — private ($250K+ membership), but the adjacent Biltmore hotel areas are accessible
+
+### How Rich Do You Need to Be for $2K/Night Hotels?
+
+A 3-night stay = ~$6K room + dining/drinks/tips = $8-10K total.
+
+By income: $500K–$1M+/year for it to feel comfortable. At $500K it's a treat; at $1M+ it's a Tuesday. At $200K it's 3-5% of gross — you'd feel it.
+
+By net worth: $1M+ for it to be reasonable, $3M+ for it to be easy. People who stay at places like Rosewood Miramar regularly are typically $10M+ net worth.
+
+Rule of thumb: don't spend more than 1% of net worth on a single leisure trip.
+
 ## Common Patterns
 
 Ultra-wealthy enclaves tend to share: no commercial zoning, large lots, mature trees for privacy, proximity (but not too close) to a major city, and often natural beauty as a draw. Newer ones (Jackson Hole, Indian Creek, Paradise Valley) are growing due to state tax advantages and remote work flexibility.
